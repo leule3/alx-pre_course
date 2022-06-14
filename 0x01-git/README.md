@@ -1,0 +1,1 @@
+secoegnete yeshalegnal bechegnete
